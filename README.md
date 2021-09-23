@@ -1,2 +1,2 @@
-__#HOLA, SOY Anallely merino!👩🏻__
+__#HOLA, SOY ANALLELY MERINO!👩🏻__
 
